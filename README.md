@@ -1,6 +1,6 @@
 # cryptocomics
 our comics will help you to understand what is BLOCKCHAIN  
-AUTHOR: [@Antropocosmist](https://t.me/Antropocosmist)
+AUTHOR: [@Antropocosmist](https://t.me/Antropocosmist)  
 any question or idea? use TELEGRAM for fast contact  
 
 ## Can you understand Blockchain
