@@ -9,7 +9,7 @@ Any question or idea? Send me message! I'm a communicative person)
 
 
 ## What is an Airdrop in Reality?  
-![What is an Airdrop in Reality?](What_ia_an_Airdrop.jpg)  
+![What is an Airdrop in Reality?](What_is_an_Airdrop.jpg)  
 
 
 ## Can you Understand the Blockchain?  
