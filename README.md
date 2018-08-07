@@ -1,7 +1,7 @@
-# cryptocomics
+# cryptocomics  
 We will help you to understand the BLOCKCHAIN!  
 AUTHOR: [@Antropocosmist](https://t.me/Antropocosmist)  
-Any question or idea? Send me messee! I'm a communicative person)  
+Any question or idea? Send me message! I'm a communicative person)  
 
 
 ## cyber•Drop Services  
