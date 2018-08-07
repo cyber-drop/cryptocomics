@@ -5,7 +5,7 @@ Any question or idea? Send me message! I'm a communicative person)
 
 
 ## cyber•Drop Services  
-![That's how it works!](That_How_It_Works.jpg)  
+![That's how it works!](Thats_How_It_Works.jpg)  
 
 
 ## What is an Airdrop in Reality?  
