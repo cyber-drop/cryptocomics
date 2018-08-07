@@ -5,16 +5,16 @@ Any question or idea? Send me messee! I'm a communicative person)
 
 
 ## cyber•Drop Services  
-![That's how it works!](blockchaincomics1.jpg)  
+![That's how it works!](That_How_It_Works.jpg)  
 
 
 ## What is an Airdrop in Reality?  
-![What is an Airdrop in Reality?](blockchaincomics2.jpg)  
+![What is an Airdrop in Reality?](What_ia_an_Airdrop.jpg)  
 
 
 ## Can you Understand the Blockchain?  
-![Can you Understand the Blockchain?](blockchaincomics3.jpg)  
+![Can you Understand the Blockchain?](Can_You_Understand_the_Blockchain.jpg)  
 
 
 ## Even when you all grown up...  
-![Don't forget your childhood dreams...](blockchaincomics4.jpg)  
+![Don't forget your childhood dreams...](Childhood_Dreams.jpg)  
